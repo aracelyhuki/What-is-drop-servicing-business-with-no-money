@@ -1,6 +1,7 @@
 # Drop Servicing Business with No Money
 # How I EARNED 50,000 $$$ drop servicing passive income
 [![How I EARNED 50,000 $$$ drop servicing passive income](https://img.youtube.com/vi/bi0ePfPdlKc/0.jpg)](https://www.youtube.com/watch?v=bi0ePfPdlKc)
+# Click on the image to watch the video
 
 ## Introduction
 
